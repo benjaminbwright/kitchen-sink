@@ -41,3 +41,4 @@ Next, add everything else to the pot and cover with the creamy roux. Add water u
 - Take out the potatoes
 - Maybe try Red Miso
 - Try w/out the shallot
+- Write an intro
