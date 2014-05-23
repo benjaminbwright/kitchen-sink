@@ -1,4 +1,4 @@
 kitchen-sink
 ============
 
-A repository of nutritarian recipes in development
+A repository of nutritarian recipes in development.
