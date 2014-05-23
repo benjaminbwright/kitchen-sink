@@ -7,6 +7,14 @@
 
 ## Ingredients
 
+- Quinoa
+- Chipotle Peppers
+- Peanut Butter
+- Cumin
+- Paprika
+- Oatmeal
+- Onions
+- Garlic
 
 ## Instructions
 
