@@ -26,6 +26,7 @@ Growing up in Texas, just a short distance from Louisiana, I was exposed early t
 - 10 oz. Package Little Tomatoes
 - 1/4 Cup Short Grain Rice
 - 1 Tsp - 1 Tbsp Cayenne Pepper
+- 1 Tsp Apple Cider Vinegar
 - More water
 
 ## Instructions
