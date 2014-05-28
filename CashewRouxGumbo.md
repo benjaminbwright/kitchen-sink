@@ -12,32 +12,28 @@ Growing up in Texas, just a short distance from Louisiana, I was exposed early t
 ### Roux
 
 - 1/2 Cup Cashews
-- 1/2 Cup Water
-- 2 Tbsp White Miso
-- 1 Onion
-- 3 Cloves Garlic
-- 1 Tbsp Dried Thyme
-- Juice of 1 Lemon
+- 1/2 cup water
+- 2 tablespoon white miso
+- 1 onion
+- 3 cloves garlic
+- 1 tablespoon dried thyme
+- juice of 1 lemon
 
 ### Gumbo
 
-- 1lb Lb Okra (cut in 1 cm. pieces)
-- 2 Cups Cooked Blackeyed Peas
-- 10 oz. Package Little Tomatoes
-- 1/4 Cup Short Grain Rice
-- 1 Tsp - 1 Tbsp Cayenne Pepper
+- 1 pound okra (cut in 1 cm. pieces)
+- 2 cups cooked blackeyed peas
+- 10 ounce package cocktail tomatoes
+- 1/4 cup brown short-grain rice
+- 1 teaspoon - 1 tablespoon cayenne pepper
+- 1 teaspon apple cider vinegar
 - More water
 
 ## Instructions
 
-Put the cashews, the 1/2 cup water and the white miso in a magic bullet, high powered blender, etc. Blend it the mixture until it is smooth and creamy.
+Put the cashews, the 1/2 cup water and the white miso in a magic bullet, high powered blender, etc. Blend the mixture until it is smooth and creamy.
 
-Dice the onion and cloves of garlic. Place them in a soup pot with the thyme and saute in a 1/2 cup water. When the onions are translucent add the cashew cream and the juice of 1 lemon to the pot and stir until mixed well. You can add a little water to keep it from drying out.
+Dice the onion and cloves of garlic. Place them in a soup pot with the thyme and saute in a 1/2 cup water. Add just enough water that the onions do not stick and burn. When the onions are translucent add the cashew cream and the juice of 1 lemon to the pot and stir until 	mixed well. Continue to add a little water as needed to keep the mixture from drying out.
 
-Next, add everything else to the pot and cover with the creamy roux. Add water until everything is covered and bring to a boil. Turn the heat to low, cover the pot, and let it simmer for 35 minutes.
+Next, add everything else to the pot and cover with the creamy roux. Add water until everything is covered and bring to a boil. Turn the heat to low, cover the pot, and let it simmer for 35 minutes. Be sure to stir periodically when to keep the mixture from sticking.
 
-## Notes
-
-- Take out the potatoes
-- Maybe try Red Miso
-- Write an intro
