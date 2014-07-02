@@ -2,8 +2,10 @@
 
 ## Intro
 
-- Prep Time: Todo
-- Serves: 4
+- Prep Time: 35 minutes
+- Serves: 6
+
+Everybody loves a good chili in the winter time. I love a good chili just about any time, and growing up on Tex-Mex has left me with a somewhat refined palette. It would be impossible to count the number of dishes that I crave that require some kind of chili. Just about all of these require meat. Considering the health consequences of eating meat, I had to find another way to make delicious vegetarian chili recipe to fill the gap in many of my favorite Tex-Mex dishes. Therefore, *chili con carne* has become *chili con quinoa.*
 
 ## Ingredients
 
