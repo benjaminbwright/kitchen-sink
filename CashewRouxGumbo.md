@@ -5,7 +5,7 @@
 - Prep Time: 45 minutes
 - Serves: 4
 
-Growing up in Texas, just a short distance from Louisiana, I was exposed early to traditional Cajun dishes like Gumbo and Etoufee. They always seemed to make their appearance at major holidays and potlucks. The roux at the core of the gumbo is basically made of butter and flour. I just knew there had to be a better way. Enter the cashew.
+Growing up in Texas, just a short distance from Louisiana, I was exposed early to traditional Cajun dishes like Gumbo and Etoufee. They always seemed to make their appearance at major holidays and potlucks. The roux at the core of the gumbo is basically made of butter and flour. I just knew there had to be a better way. So I built the base of this recipe with cashews and white miso.
 
 ## Ingredients
 
@@ -27,7 +27,7 @@ Growing up in Texas, just a short distance from Louisiana, I was exposed early t
 - 1/4 cup brown short-grain rice
 - 1 teaspoon - 1 tablespoon cayenne pepper
 - 1 teaspon apple cider vinegar
-- More water
+- more water
 
 ## Instructions
 
